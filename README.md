@@ -1,1 +1,0 @@
-# EDU_NH_SNU
